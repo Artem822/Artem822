@@ -1,1 +1,1 @@
-<img src="https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.pinterest.com%2Fpin%2Fyakuza-kiryu-kazuma-gif-cool-animated-action--790170697130507776%2F&psig=AOvVaw1J3ZS5iYauHlmsnDsJ3884&ust=1717789078815000&source=images&cd=vfe&opi=89978449&ved=0CA8QjRxqFwoTCMi4h43dx4YDFQAAAAAdAAAAABAE">
+<img src="https://i.pinimg.com/originals/0e/fc/66/0efc660ca75aec4bd6c98a8205e45acc.gif">
