@@ -1,1 +1,1 @@
-<img alt="a man in a suit pointing at the screen with text reading, i don't know what this is" class="hCL kVc L4E MIw" fetchpriority="auto" loading="auto" src="https://i.pinimg.com/originals/0e/fc/66/0efc660ca75aec4bd6c98a8205e45acc.gif" elementtiming="closeupImage">
+<img class="hCL kVc L4E MIw" fetchpriority="auto" loading="auto" src="https://media1.tenor.com/m/fUQ91fkPAa4AAAAC/kiryu-type-type.gif" elementtiming="closeupImage">
